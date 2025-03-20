@@ -1,0 +1,1 @@
+https://qiita.com/tapitapi/items/9459362d8aee25137647#yfinance%E3%81%A7%E3%81%A7%E3%81%8D%E3%82%8B%E3%81%93%E3%81%A8
